@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aayansaha
+- 👀 I’m interested in </> and NETFLIX
+- 🌱 I’m currently learning DATA ANALYSIS WITH PYTHON
+- 💞️ I’m looking to collaborate with everyone of you <3
+- 📫 How to reach me - ayansaha0103@gmail.com/ 8777847653
